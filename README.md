@@ -1,0 +1,3 @@
+- 👀 I’m interested in studying some code.
+- 🌱 I’m currently learning some project.
+- 📮 if you want to find me ,you can send email for me  3097434322@qq.com
